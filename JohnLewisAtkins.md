@@ -225,7 +225,6 @@ Senior-Junior distinction by itself can not provide documentation of paternity, 
 - Total Slaves:	6
 - Total All Persons - Free White, Free Colored, Slaves:	10
 
-
 Mr. John Atkins Sr. Born 6 Feb 1765 in Atkins ferry, Cumberland County North Carolina Son of Ica Atkins and Anne (Hutchins) Atkins Brother of Sarah Atkins [half], 
 - Elizabeth (Atkins) Rand [half], 
 - Ica Atkins Jr, 
@@ -239,25 +238,4 @@ Husband of Jennett (McNeill) Atkins
 wikitree: https://www.wikitree.com/wiki/Atkins-5471
 
 clan macfarlane genealogy: https://www.clanmacfarlanegenealogy.info/genealogy/TNGWebsite/getperson.php?personID=I55835&tree=CC
-
-
-## Discard
-
-Children of Jennett McNeill and John Atkins (5)
-Janet Atkins
-1798–1870	 • 	994X-LHV​​
-
-James Alexander Akins
-1805–1822	 • 	LBG8-PNB​​
-
-John Lewis Atkins
-1807–1873	 • 	994X-LCV​​
-
-Flora Isabella Atkins
-1814–1899	 • 	994X-LZ8​​
-
-Katherine Atkins
-1816–1886
-
-5 out of the 6 children are named either for grandparents or their uncles and aunts: the first (Ann) named for her father's mother Anne Hutchines, the second named for mother's mother Janet, the first two boys named for brothers of their father (James and Lewis), and the next daughter named for two of her mother's sisters (Flora and Isabella).  Aunt Flora in turn bears the name of her grandmother, the second wife of Col Alexander.
 
